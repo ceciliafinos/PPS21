@@ -1,1 +1,2 @@
 # PPS21
+Soy ingeniera civil con especialización en producción de gas y petróleo, con casi 20 años de experiencia en la industria del oil&gas. A lo largo de mi trayectoria, me he destacado por mis conocimientos sólidos en gestión de proyectos, liderando equipos y optimizando procesos para alcanzar resultados exitosos. Además, recientemente he adquirido competencias en Ciencia de Datos, con el objetivo de integrar soluciones innovadoras y analíticas para afrontar los desafíos de la industria energética.
